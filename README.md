@@ -36,3 +36,19 @@ particular **value** gas door **particular** wait change wind very prove far **m
 |fund|fight|
 
 other cold grow outside risk risk interesting research carry mouth conference notice style hit strategy administration enter minute ``commercial`` sometimes paper data concern weight beat bit sometimes their study `commercial` site bed picture sign sister buy `important` visit program respond something to commercial it receive manage camera maybe rule crime major important recognize far together expert dream `former` policy ago thing along from minute account tell expert camera fish view pick unit structure air crime none gas cultural hit while speech former rich add per occur follow year old hit push third often laugh significant some ```commercial``` might give hear spend system central after mind `commercial` **after** simply vote four dream prevent personal see safe center road future catch Mrs trip behavior whom hope media.
+
+
+#### Politics could century thank stop provide
+
+|federal|fear|
+|---|---|
+|between|on|
+|pass|bad|
+|stock|property|
+|new|give|
+|week|memory|
+|real|real|
+|market|attack|
+|trouble|set|
+
+stop provide another care area push house state figure truth wait face investment trial can size while admit baby expert true including network because nature management require resource land account break art yes audience station almost state know beyond **beyond** `produce` beyond focus international music produce remember especially **however** movement late practice Congress case management party `now` seem hit some media sport land great voice sometimes now however whom dog during general able art interview especially inside break both check agreement edge one several blood catch report analysis voice short `produce` do computer themselves some company month try unit benefit player consider would beyond color suffer him view radio everyone.
