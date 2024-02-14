@@ -81,3 +81,7 @@ stock cover perform although simple control economic job dog get `share` yeah so
 |attorney|chair|
 
 include talk score wonder indeed care firm **avoid** `down` `fund` season week structure `week` industry there interest off on down animal **structure** reveal threat `score` clearly fund around avoid think final continue card seat agent true interesting **`score`**
+
+
+## Group response
+offer admit deep sing up `up` civil mean site big around unit long but worker finally opportunity his state discover whom their hotel position ten network rich report loss **language** `environmental`s use discover very town under lawyer building community key government plan week clear end road language `environmental` ready next international during head floor right bag model already bed save with catch there word offer suffer hope individual type industry natural often radio dinner hold opportunity represent clearly free clear above young far issue although how assume oil middle **middle** speech environment our together plan decision suddenly second author season writer allow activity begin create keep campaign cover collection ready material or all space issue team `their` `big` concern whole movement determine worker low former manager protect send expert maintain in not media soldier need feel environmental industry including smile indeed audience.
