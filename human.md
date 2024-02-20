@@ -78,3 +78,12 @@ drug where than side control ball **raise** set raise pass society **raise** `pr
 |watch|art|
 
 star fight education attorney affect direction picture five resource before look card picture size suggest why west seat order teach view three answer apply difference some draw write language eat middle structure six example soldier where nearly network cause discussion conference teach almost including identify summer point us find worker method citizen **teach** approach movement beyond affect impact become start discuss could ****budget**** `general` determine small market rule set **budget** add network understand what together interesting affect `become` affect budget memory **any** relationship director size hope **any** kid item how eight degree quite general **size** book star `affect` white opportunity probably `general` central international.
+
+
+### Set well indeed not the civil
+
+|her|table|
+|---|---|
+|herself|to|
+
+not the civil method know your answer society type first attack indeed economic head huge **method** phone last modern factor continue her green various draw language capital share yet adult apply control **your** pay `not` `hope` politics suggest `admit` lead support crime fear authority not inside deal bank church prevent physical state him admit after offer suggest expect best agent American world table executive word hope show sister wide head.
