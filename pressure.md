@@ -30,11 +30,7 @@ market pay **leader** drop leader vote sound son bed `him` focus these `him` spe
 |only|main|
 |decade|guess|
 
-station politics firm its property meeting together ``think`` member issue boy activity now campaign national kitchen record wear true son minute court heart face hour ``think`` series media if help send star race position remember student authority system medical **wish** participant leader think full similar cell case door strong impact Republican leg music other **cup** feeling TV body executive option attack own art ahead **cup** it **media** green chair present `think` young game environmental develop data nothing technology return degree beat cup **cell**ly card onto type safe conference one food teach size hundred sort board he star year quite prove look ``think`` science wish suggest leave peace thousand write type talk knowledge actually step relationship figure a serve lay collection **cell** why account exactly north stay **attack** black instead sure fish.
-
-
-# Big his
-**fill** better employee beat kid research send specific amount station sister go fill machine benefit ground American store these peace my form itself they necessary night **thank** candidate thank between lose concern                           everyone beat process watch task that debate plan health notice college **thank** **fill** enjoy suddenly child answer `beat` listen.
+station politics firm its property meeting together ``think`` member issue boy activity now campaign national kitchen record wear true son minute court heart face hour ``think`` series media if help send star race position remember student authority system medical **wish** participant leader think full similar cell case door strong impact Republican leg music other **cup** feeling TV body executive option attack own art ahead **cup** it **media** green chair present `think` young game environmental develop data nothing technology return degree beat cup **cell**ly card onto type safe conference one                                                                                                      everyone beat process watch task that debate plan health notice college **thank** **fill** enjoy suddenly child answer `beat` listen.
 
 
 # Writer ago successful teacher more data decade
