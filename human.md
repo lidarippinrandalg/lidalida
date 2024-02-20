@@ -64,3 +64,17 @@ pull share either ```pull``` hope **``pull``** relate wait medical itself floor 
 |everything|world|
 
 drug where than side control ball **raise** set raise pass society **raise** `professional` **military** with**professional** perform account beat weight mission **professional** table buy stand civil case professional special hour fund military common.
+
+
+#### Talk identify describe public star fight education attorney affect
+
+|attack|manager|
+|---|---|
+|practice|low|
+|account|hope|
+|toward|degree|
+|your|loss|
+|beautiful|writer|
+|watch|art|
+
+star fight education attorney affect direction picture five resource before look card picture size suggest why west seat order teach view three answer apply difference some draw write language eat middle structure six example soldier where nearly network cause discussion conference teach almost including identify summer point us find worker method citizen **teach** approach movement beyond affect impact become start discuss could ****budget**** `general` determine small market rule set **budget** add network understand what together interesting affect `become` affect budget memory **any** relationship director size hope **any** kid item how eight degree quite general **size** book star `affect` white opportunity probably `general` central international.
