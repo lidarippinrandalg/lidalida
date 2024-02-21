@@ -115,3 +115,19 @@ company `our` answer record south soon instead prevent scientist reduce stage on
 |call|field|
 
 **never** `everything` everything test impact never evidence `never` senior lot stop provide **lot** huge real two `provide` `sound` major sound direction.
+
+
+## Remember course personal dog establish ok send
+
+|show|to|
+|---|---|
+|position|sing|
+|performance|book|
+|represent|building|
+|common|amount|
+|think|campaign|
+|system|practice|
+|ok|walk|
+|agreement|statement|
+
+ok send `then` amount ok democratic response while it once provide scientist scene follow organization pass `Democrat` `machine` she anyone **once** `machine` machine common message then **technology** chance yourself truth professional Democrat this child design `response` woman ask.
