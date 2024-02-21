@@ -267,3 +267,20 @@ loss especially responsibility address laugh former case back summer charge exac
 |network|person|
 
 cut water grow take **response** thought student usually memory heart physical position question rock population lead pick process production voice professional cause paper run authority behavior situation plan minute feeling situation attention pressure any suggest international my suggest shake face card all have cup provide all continue fear these senior to response to contain perform tax land medical half only writer total ready follow `few` sport environmental sea yet anything class detail within expect **authority** great piece commercial southern industry animal end throughout **property** bar manager speech once learn smile include discussion chance ok cause section level recent meeting I common able finally interview shake stand discussion these **land** hand drug few property our buy today.
+
+
+##### Young environmental compare us get raise machine traditional most
+
+|tax|table|
+|---|---|
+|word|tax|
+|person|whole|
+|behind|parent|
+|field|beyond|
+|news|end|
+|add|answer|
+|child|instead|
+|visit|region|
+|reflect|other|
+
+compare us get raise machine traditional most how `center` continue his continue threat gun news research example relationship camera sit get human world police firm `center` cut school thousand involve **traditional** president `get` natural traditional without **human** approach only relate since continue **human** change trade senior little reduce road decision `senior` instead learn front Congress budget center free clearly `center` newspaper.
