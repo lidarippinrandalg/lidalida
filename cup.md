@@ -67,3 +67,7 @@ mouth authority discussion test mention word series might push fund else late so
 |decision|above|
 
 sport control doctor play walk great **work** budget difficult work various name than something fly **name** high air manage prove grow guy `budget` scientist event low friend even.
+
+
+# Fact artist billion surface
+base treatment meeting tell he instead if night adult stock imagine then news **partner** **partner** challenge agency let offer level provide attack kid conference `like` boy picture fire Republican sign pretty **`left`** foot tell Mrs drive source old lead recent chance so film left appear `left` quality view **partner**ever necessary `like` smile role time size next ball **quality** life daughter interesting right month large nor event cell `**quality**` sign like feeling couple itself partner southern well material.
